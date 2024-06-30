@@ -2,7 +2,7 @@
 ║║║ ╠╦╝ ╠╣┈ ║┈╦ ┈  
 ╩┈╩ ╩╚═ ╚┈┈ ╚═╝ ┈
 
-<img url="https://telegra.ph/file/48c48f604f0cb774bd938.jpg">
+<img url="https://telegra.ph/file/48c48f604f0cb774bd938.jpg">BLACK DEVIL<img>
 
 
 <h3>♏Seth started this to clone bots…. 
